@@ -5,8 +5,6 @@
 
 - Email me -> **bhowmikankita848@gmail.com**
 
-- Resume -> [https://drive.google.com/file/d/1rlc6ivB_Dl-3Ssv_3l-7bhcSnsomc2Zy/view](https://drive.google.com/file/d/1rlc6ivB_Dl-3Ssv_3l-7bhcSnsomc2Zy/view)
-
 - Fun Fact : **XD I think I'm funny ;)**
 
 <h3 align="left">Connect with me:</h3>
